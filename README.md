@@ -15,7 +15,7 @@ How to play:
 
 
 
-[Demo video](https://umass-my.sharepoint.com/:v:/g/personal/chengzheli_umass_edu/EfdnYgiTIvBNkrHY3702ctMBOpTfwdrRxKoZYbuK6mpT6g?e=dEAAue)
+[Demo video](https://youtu.be/U4QwQ6LLuwc)
 
 
 
